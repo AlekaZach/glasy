@@ -1,2 +1,0 @@
-# glasy
-ghjtrn 1
